@@ -6,3 +6,5 @@ And i have analyzed the syllabus of Jee all over but the best syllabus i can get
 Keep in mind 
 
 Jst one goal IIT BOMBAY 🎯
+
+Stay motivated not really motivated be obssed with IIT(Indian Institute of Technology) 
